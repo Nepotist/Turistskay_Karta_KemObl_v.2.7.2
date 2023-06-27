@@ -1,1 +1,1 @@
-# Turistskay_Karta_KemObl_v.2.7.2
+# TOURIST MAP OF THE KEMEROVSKAY region
