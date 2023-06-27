@@ -1,0 +1,1 @@
+# Turistskay_Karta_KemObl_v.2.7.2
